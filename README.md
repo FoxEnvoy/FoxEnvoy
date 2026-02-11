@@ -7,3 +7,5 @@ Hi! I'm Meivina, Mei for short.
 Pls don't be shy to approach me or int with me (unless there's dniuf/dni/dniuc on my name) Pls talk/int first though (∩´∀`∩)*゜
 
 I am mostly offtab or (semi)afk, just w2i, expect late resps though
+
+I have two Shen Qiao githubs, I couldn't log in that one acc that I did not mention, the email got deleted.
